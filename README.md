@@ -1,1 +1,1 @@
-# Vlados Doroshenko (VlaDor)
+# Vlados Doroshenko
